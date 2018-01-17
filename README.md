@@ -2,7 +2,7 @@
 
 Class repository for group edit and merge practice. 
 
-* Clone this repository.
+* Fork and then clone the repository to your working area.
 * Create a branch named with your GitHub username.
 * Add a section, similar to the first one (mine) and tell us what you did over your break.
 * Create a Pull Request (PR) to have your changes added to the master branch.
