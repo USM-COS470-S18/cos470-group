@@ -12,3 +12,6 @@ The winter break was a bit cold this year which scuttled my holiday skiing plans
 
 ## Amanda Castonguay
 This winter I worked a lot. And I slept a lot. I wish I could have slept more. When I graduate, I am going to dedicate an entire year to sleeping. Man, I love sleep. Work is fun, too. 
+
+## Chris Allen
+During winter break this year I really did not do much. I went to all of my family's Christmas parties and went home for Christmas. I also tried to go running pretty much everyday even though it was ridiculously cold outside most days. Other than that I basically just played Fortnite and watched Netflix.
