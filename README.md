@@ -36,5 +36,9 @@ always get a new sled, but that was the best sled ride ever!"
 ## Chris Allen
 During winter break this year I really did not do much. I went to all of my family's Christmas parties and went home for Christmas. I also tried to go running pretty much everyday even though it was ridiculously cold outside most days. Other than that I basically just played Fortnite and watched Netflix.
 
+
+## Karen Foley
+I work full time and go to school part time so winter break doesn't mean a whole lot to me. I still had to go to work everyday but at least I had a little extra free time to catch up on some quality family time. We attempted to bring our daughter out to play in the snow but that only lasted about 5 minutes because it was so cold. I ended up spending most of my winter break playing with Christmas toys and reading the same book over and over and over again, my daughter is two.
+
 ## Brennan Harvey
 This winter break I spent my 28th birthday at Sugarloaf with my family.  We attempted to ski and snowboard, but damn it was cold.  We only lasted about 3-4 runs each day we were there.  Luckily the place we were staying at had a massive wood stove which got things cooking quickly.  Towards the end of break I went to Winter Park, CO for a week of fantastic skiing.  I would highly recommend Winter Park resort if you're a skiier.
