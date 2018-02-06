@@ -49,3 +49,5 @@ I then took a quick trip down into DC, where my girlfriend from Thailand flew in
 
 We then came back to Maine where she got a nice taste of this Artic weather.Despite the ridiculously cold weather we got a few trips into the White Mountains as well as Trips to Range Pond State Park and all around the Greater Portland Area. All in all 10/10 would take a winter break again if possible. 
 
+## Ben Thompson
+Over the winter break, I celebrated Christmas with my family. We always have a big Christmas party a few days before Christmas and every year we takes turns hosting it. This time it was cancelled because of a snowstorm on the day we were suppose to have it, and we decided to go out to eat a few days later instead. Other than that I played Warframe and relaxed.  
