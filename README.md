@@ -51,3 +51,7 @@ We then came back to Maine where she got a nice taste of this Artic weather.Desp
 
 ## Ben Thompson
 Over the winter break, I celebrated Christmas with my family. We always have a big Christmas party a few days before Christmas and every year we takes turns hosting it. This time it was cancelled because of a snowstorm on the day we were suppose to have it, and we decided to go out to eat a few days later instead. Other than that I played Warframe and relaxed.  
+
+
+## Si Khuu
+I work full time so I did not have a "winter break" but i did end up getting the flu which turned into a sinus infection. Other than this almost month long ordeal I met an old friend that was visiting from Japan to see what the solar New Year was like in the states. I was at least able to entertain when I was feeling better from the flu, but before I developed the servere sinus infection!
