@@ -36,7 +36,6 @@ always get a new sled, but that was the best sled ride ever!"
 ## Chris Allen
 During winter break this year I really did not do much. I went to all of my family's Christmas parties and went home for Christmas. I also tried to go running pretty much everyday even though it was ridiculously cold outside most days. Other than that I basically just played Fortnite and watched Netflix.
 
-
 ## Karen Foley
 I work full time and go to school part time so winter break doesn't mean a whole lot to me. I still had to go to work everyday but at least I had a little extra free time to catch up on some quality family time. We attempted to bring our daughter out to play in the snow but that only lasted about 5 minutes because it was so cold. I ended up spending most of my winter break playing with Christmas toys and reading the same book over and over and over again, my daughter is two.
 
@@ -52,7 +51,11 @@ We then came back to Maine where she got a nice taste of this Artic weather.Desp
 ## Ben Thompson
 Over the winter break, I celebrated Christmas with my family. We always have a big Christmas party a few days before Christmas and every year we takes turns hosting it. This time it was cancelled because of a snowstorm on the day we were suppose to have it, and we decided to go out to eat a few days later instead. Other than that I played Warframe and relaxed.  
 
+## Si Khuu
+I work full time so I did not have a "winter break" but i did end up getting the flu which turned into a sinus infection. Other than this almost month long ordeal I met an old friend that was visiting from Japan to see what the solar New Year was like in the states. I was at least able to entertain when I was feeling better from the flu, but before I developed the servere sinus infection!
+
 ## Jeffrey Thibault
 This winter break I embarked on an epic journey to defeat the Dark Lord, He Who Must Not Be Named. There were many twists and turns along the way, giant snakes to be killed, Triwizard Tournaments to be won, wizarding exams to be passed. At one point we even realized that He Who Must Not Be Named could not be killed until we actually destroyed some of his favorite toys first. 7 of them, in fact, because 7 is a very powerfully magical number. I started a little boy, and in the end emerged as a man that grasped the true meaning of friendship and love.
 
 Wait. I think that might actually be the Harry Potter series, and not my winter break. Actually, all I did was play Magic: the Gathering and Hearthstone while enjoying not having the dark specter of impending assignment due dates hanging over my head.
+
