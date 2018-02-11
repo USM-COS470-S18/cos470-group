@@ -59,3 +59,9 @@ This winter break I embarked on an epic journey to defeat the Dark Lord, He Who 
 
 Wait. I think that might actually be the Harry Potter series, and not my winter break. Actually, all I did was play Magic: the Gathering and Hearthstone while enjoying not having the dark specter of impending assignment due dates hanging over my head.
 
+## Darryl Seamans
+My break encompassed several winters, as I am returning to school after a hiatus of several years. Most recently, I saw 
+"The Last Jedi" twice, viewed the Gardens Aglow in Boothbay Harbor, and got to see my good friend VI VA perform for her 
+birthday at Portland House of Music and Events for a worthy cause. Other than that, most of the time was spent working.
+
+
